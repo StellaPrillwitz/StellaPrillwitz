@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @StellaPrillwitz
+- 👀 I’m interested in cooking plant-based meals.
+- 🌱 I’m currently a student for dietitian nutrition.
+- 💞️ I’m looking to share creative recipes for vegan beginners or long-time vegans.
+- 📫 How to reach me: email adress; stella.prillwitz@gmail.com
+- 😄 Pronouns: she/her
